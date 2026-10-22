@@ -1,4 +1,4 @@
-❝⠀everything lies in the eyes of you!⠀❞
+$\color{#ffabca}{\text{❝⠀everything lies in the eyes of you!⠀❞}}$
 ⠀ ( ＾ω＾ )
 
 
