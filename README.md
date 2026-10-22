@@ -2,7 +2,7 @@
 ⠀ ( ＾ω＾ )
 
 
-⠀ mally / coyote⠀🍥 17yrs⠀⠀⠀infp/6w521 
+mally / coyote⠀🍥 17yrs⠀⠀⠀infp/6w521 
 
   ab/egs fan
 
