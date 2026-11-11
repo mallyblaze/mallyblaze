@@ -8,9 +8,23 @@ mally / coyote⠀🍥 17yrs⠀🍥⠀infp/6w521
 
   𑣲.  neurodiv hf 90
 
-<details>
-  <summary>dni</summary>
+<div align="center">
+  <table bgcolor="#FCB8E4" cellspacing="0" cellpadding="10" style="border: 1px solid #30363d; border-radius: 6px;">
+    <tr>
+      <td>
+        <details>
+          <summary><font color="#DA8AFF"><b>dni</b></font></summary>
+          <br>
+          <p align="left">
+            romantic gourdy yume (we have a gourdy fictive)
+            under 14
+            uncomfortable with the fact I have bad habits (vaping/smoking, sh, etc)
+            idk I’ll add if I need to
+          </p>
+        </details>
+      </td>
+    </tr>
+  </table>
+</div>
 
-<details>
-  <summary>fun stamps n stuff</summary>
 
