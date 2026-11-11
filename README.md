@@ -31,7 +31,7 @@ mally / coyote⠀🍥 17yrs⠀🍥⠀infp/6w521
 <details>
   <summary><b>fun stuff</b></summary>
   <br>
-  <src="https://github.com/user-attachments/assets/3491c3f1-4efa-42d6-ad67-0d80e5106718" />
+  < src="https://github.com/user-attachments/assets/3491c3f1-4efa-42d6-ad67-0d80e5106718" />
 " height="129" alt="image"
 </details>
 
