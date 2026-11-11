@@ -8,4 +8,9 @@ mally / coyote⠀🍥 17yrs⠀🍥⠀infp/6w521
 
   𑣲.  neurodiv hf 90
 
-PLEASE dni if you are a gourdy yume (romantic) due to a fictive we have
+<details>
+  <summary>dni</summary>
+
+<details>
+  <summary>fun stamps n stuff</summary>
+
