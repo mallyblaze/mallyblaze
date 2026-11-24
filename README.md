@@ -18,6 +18,7 @@ mally / coyote⠀🍥 17yrs⠀🍥⠀infp/6w521
 - romantic gourdy yume (we have a gourdy fictive)
 - under 14
 - uncomfortable with the fact I have bad habits (vaping/smoking, sh, etc)
+- GOD CAN MY BF'S EX GF LEAVE ME ALONE DNIDNIDNI UR STALKING ME ATP
 - idk I'll add if I need to
   
     </tr>
